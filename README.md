@@ -1,2 +1,0 @@
-# BanMeChina
-China, ban me!
